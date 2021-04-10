@@ -27,3 +27,11 @@ Autres modéles (rouge):
 https://www.qwetch.com/wp-content/uploads/2018/10/QD3076_carre.png
 
 https://www.qwetch.com/wp-content/uploads/2018/10/2019_04_QWETCH_BOUTEILLE_FLOWERS_QD3076_05_1100x1100px.jpg
+
+Pleins de gourdes:
+
+https://www.qwetch.com/wp-content/uploads/2021/02/page_ambiance_2020_10_QWETCH_BOUTEILLE_MULTI_COLLECTION_AH202001_1920x1080.jpg
+
+Gourde petits chats:
+
+https://www.qwetch.com/wp-content/uploads/2020/09/QD3373_carre.png
